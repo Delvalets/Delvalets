@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Delvalets
+- 👀 I’m interested in a opportunity to put my studies into practice
+- 🌱 I’m currently learning python and languages who works in back end
+- 💞️ I’m looking to collaborate on Back End Projects or Companies
+- 📫 How to reach me: tayna.valets@gmail.com 
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I love reading books about mysteries and horror
